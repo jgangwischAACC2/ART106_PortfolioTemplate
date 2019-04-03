@@ -1,1 +1,0 @@
-# ART106_PortfolioTemplate
